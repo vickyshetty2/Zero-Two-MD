@@ -2,7 +2,7 @@
 
 <p align="center">
 
-  <img src="https://user-images.githubusercontent.com/104565822/177012232-97866d97-0798-4ca2-9e56-5d0a2413642b.png" alt="21-akeno-wallpaper-Images-of-Akeno-Himejima-Wallpaper-industrious-info" />
+  <img src="https://Screenshot_2022_0714_222835.png" alt="21-akeno-wallpaper-Images-of-Akeno-Himejima-Wallpaper-industrious-info" />
 
 </p>
 
